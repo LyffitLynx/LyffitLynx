@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on 
 - 📚 I'm studying business and IT 
 - 🇰🇪 I hail from Kenya
-- 👸🏾 gender is female 
+- 👸🏾 gender is queen 
  
 
---->
-.,
+
+
